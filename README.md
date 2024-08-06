@@ -1,8 +1,8 @@
 #  (Download) in PDF The Ministry of Time By (Kaliane Bradley)
 
-### [➤ READ Now ✅➤➤ The Ministry of Time]([https://yeshq.biz/en/movie/886436](https://en.ebooksteach.xyz/?book=199798179-the-ministry-of-time)
+### [➤ READ Now ✅➤➤ The Ministry of Time](https://en.ebooksteach.xyz/?book=199798179-the-ministry-of-time)
 
-### [➤ DOWNLOAD ✅➤➤ The Ministry of Time]([https://yeshq.biz/en/movie/886436](https://en.ebooksteach.xyz/?book=199798179-the-ministry-of-time)
+### [➤ DOWNLOAD ✅➤➤ The Ministry of Time](https://en.ebooksteach.xyz/?book=199798179-the-ministry-of-time)
 
 File format : ePub, PDF, Kindle, AudioBook
 
